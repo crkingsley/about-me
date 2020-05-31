@@ -3,9 +3,10 @@ About Me
 - I am married with 1 child and 1 dog. My husband works in the medical field and we just recently bought our first house. I am looking forward to making it our home.
 
 For Fun
--Gardening
--HoopDance
--AKC Rally
--Motorcycling
--Cooking/Baking
--Long Walks with the family
+- Gardening
+- HoopDance
+- AKC Rally
+- Motorcycling
+- Cooking/Baking
+- Long Walks with the family
+- Crochet
